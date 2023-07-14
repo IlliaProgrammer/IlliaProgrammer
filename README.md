@@ -1,4 +1,4 @@
-<img width="100%" src="[https://i.pinimg.com/originals/95/cd/0c/95cd0cf9f8bf898788c020c73754d7ef.gif](https://thumbs.gfycat.com/AdeptFalseJunco-mobile.mp4)" >
+<img width="100%" src="https://i.pinimg.com/originals/95/cd/0c/95cd0cf9f8bf898788c020c73754d7ef.gif" >
 
 ---
 
